@@ -58,6 +58,8 @@ CAPITULO XIV
 
 3.- EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 
+![37c81f90-1335-4f9d-bef0-7e8c90d4b752](https://user-images.githubusercontent.com/105685180/185616821-131feff4-84e0-4ff4-87ce-cd787d332bb2.jpg)
+![c98d3415-ea00-471a-afde-f7893824f4d9](https://user-images.githubusercontent.com/105685180/185616824-9a0ce64a-cf11-498f-bb15-40ae7ff62a88.jpg)
 
 
 4.- VIDEO
