@@ -66,6 +66,7 @@ https://youtu.be/ZOCQ4rK8Xq
 
 5.- CONCLUSIONES
 
+El obetivo fue tratado de manera clara y consisa para la aplicacion de los inductores y los transformadores ahora sabemos d manera mas propisia sus conceptos y sus aplicaiones entre otros.
 
 6.- BIBLIOGRAFÍA
 
