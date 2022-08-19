@@ -16,6 +16,7 @@ NOMBRE DEL PROFESOR: ING. DARWIN ALULEMA
 
 1.- OBJETIVOS 
 
+El objetivo princial es el analisis de y correcta aplicacion de los inductores y de los transformadores para esto deberemos definir que es la capacitancia el como exiten varios tipos de inductores  poder analizar los inductores en serie y en paralelo analizaremos el concepto de carga reflejada en un transformador y la igualación de impedancias con transformadores.
 
 
 OBJETIVOS ESPECIFICOS CAPITULO XIII
