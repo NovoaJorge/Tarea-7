@@ -60,6 +60,16 @@ CAPITULO XIV
 
 ![37c81f90-1335-4f9d-bef0-7e8c90d4b752](https://user-images.githubusercontent.com/105685180/185616821-131feff4-84e0-4ff4-87ce-cd787d332bb2.jpg)
 ![c98d3415-ea00-471a-afde-f7893824f4d9](https://user-images.githubusercontent.com/105685180/185616824-9a0ce64a-cf11-498f-bb15-40ae7ff62a88.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0002](https://user-images.githubusercontent.com/105685180/185630069-61829e7d-0d48-4ab6-95a2-47c1a395a004.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0003](https://user-images.githubusercontent.com/105685180/185630073-1dd20edc-06d9-4a6a-b473-fbd75d930074.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0004](https://user-images.githubusercontent.com/105685180/185630075-a83679ff-925b-4a6c-a74a-c6389741328b.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0005](https://user-images.githubusercontent.com/105685180/185630077-889b9a09-d2b0-4125-903b-f4e198b815f7.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0006](https://user-images.githubusercontent.com/105685180/185630078-60e7fd3c-a7ee-4e30-b8a6-068054843726.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0007](https://user-images.githubusercontent.com/105685180/185630082-e886da3e-adb8-4810-97e1-a86c735cfc13.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0008](https://user-images.githubusercontent.com/105685180/185630083-621f64eb-829f-4c22-9ada-d5a2f874746a.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0009](https://user-images.githubusercontent.com/105685180/185630085-69dba3da-8fb0-4293-9990-4d1664efca55.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0010](https://user-images.githubusercontent.com/105685180/185630089-cd5da356-1c8a-460d-b224-e6bfc7bc03be.jpg)
+![EJERCICIOS CAPITULO 13 Y 14_page-0011](https://user-images.githubusercontent.com/105685180/185630091-7b18b504-f765-4a3e-8e0e-194d925d2314.jpg)
 
 
 4.- VIDEO
